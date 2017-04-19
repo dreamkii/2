@@ -1,0 +1,8 @@
+title: 2학년 인문 생명과학1
+description: "영등포고등학교 생명과학1  2학년 "
+google_analytics: 
+show_downloads: true
+theme: jekyll-theme-merlot
+
+gems:
+  - jekyll-mentions
