@@ -1,3 +1,7 @@
+ 
+
+
+세포 세포분열 [클릭](https://youtu.be/ag-y_Ix0eHw)
 ***
 멘델의 유전법칙  문제 풀이 [클릭](https://youtu.be/LTPnFIMUVLA)
 ***
