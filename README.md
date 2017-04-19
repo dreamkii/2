@@ -1,11 +1,11 @@
  
 
 
-세포 세포분열 [클릭](https://youtu.be/ag-y_Ix0eHw)
+세포 세포분열 [클릭](https://youtu.be/ag-y_Ix0eHw)  
 ***
-멘델의 유전법칙  문제 풀이 [클릭](https://youtu.be/LTPnFIMUVLA)
+멘델의 유전법칙  문제 풀이 [클릭](https://youtu.be/LTPnFIMUVLA)  
 ***
-사람의 유전법칙 문제 풀이 [클릭](https://youtu.be/ZZFAOmFUC1s)  
+사람의 유전법칙 문제 풀이 [클릭](https://youtu.be/ZZFAOmFUC1s)    
 ***  
-문제 풀이 [클릭](https://youtu.be/gt6QWPhgipM)    
+문제 풀이 [클릭](https://youtu.be/gt6QWPhgipM)      
 [하고싶은 이야기](http://padlet.com/dreamkii816/25)
