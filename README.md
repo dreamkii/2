@@ -5,7 +5,7 @@
 ***  
 멘델의 유전원리 문제 풀이(2017)[클릭](https://youtu.be/N_FI_YIA5Yw)    
 ***  
-사람의 유전법칙 문제 풀이 [클릭](https://youtu.be/ZZFAOmFUC1s)    
+사람의 유전 문제 풀이(2017) [클릭](https://youtu.be/UHtfhYY9v_o)      
 ***  
 문제 풀이 [클릭](https://youtu.be/gt6QWPhgipM)      
 [하고싶은 이야기](http://padlet.com/dreamkii816/25)
