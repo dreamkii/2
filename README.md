@@ -6,7 +6,7 @@
 # 4반
 # 5반  
 - 1모둠   
-- [2모둠] (https://youtu.be/Szu7-1cgXBY)
+- 2모둠 [클릭](https://youtu.be/Szu7-1cgXBY)
 - 3모둠
 - 4모둠
 - 5모둠
