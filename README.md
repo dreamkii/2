@@ -26,7 +26,7 @@
 
 # 7반  
 -1모둠 [클릭]   
--2모둠 [클릭]   
+-2모둠 [클릭](https://youtu.be/T-k6VnyipVs)  
 -3모둠 [클릭](https://youtu.be/YqdFg8tJH2M)   
 -4모둠 [클릭]   
 -5모둠 [클릭]     
