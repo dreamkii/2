@@ -33,7 +33,7 @@
 -6모둠 [클릭](https://youtu.be/KDCrVlfA6KA)    
 
 # 8반  
--1모둠 [클릭]   
+-1모둠 [클릭](https://youtu.be/8zL-cnQYPoQ)   
 -2모둠 [클릭]   
 -3모둠 [클릭](https://youtu.be/PVp9AaqJxDw)   
 -4모둠 [클릭]   
