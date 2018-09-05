@@ -13,7 +13,7 @@
 # 5반  
 - 1모둠 [클릭](https://youtu.be/jxuqN70p-mE) 
 - 2모둠 [클릭](https://youtu.be/Szu7-1cgXBY)
-- 3모둠 [클릭]
+- 3모둠 [클릭](https://youtu.be/CheEidwcbnw)
 - 4모둠 [클릭](https://youtu.be/yy87fwpyKLM)
 - 5모둠 [클릭](https://youtu.be/nc6RMNLGS8Q)    
 
